@@ -1,1 +1,1 @@
-After the end of World War II, automobile manufacturers resumed civilian production and introduced new models designed to meet post-war demand for personal transportation.
+Electric vehicles (EVs) were popular in the early 1900s, with companies like Baker Electric and Detroit Electric producing electric cars for urban transportation.
