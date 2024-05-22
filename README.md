@@ -1,1 +1,1 @@
-The Buick Motor Company, founded in 1903, quickly became one of the largest automobile manufacturers in the United States, known for its durable and reliable cars.
+The Rolls-Royce Silver Ghost, introduced in 1906, set new standards for luxury and reliability in automobile design, earning a reputation as the "best car in the world."
