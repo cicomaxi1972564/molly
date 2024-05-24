@@ -1,1 +1,1 @@
-The Winton Bullet No. 1, built by Alexander Winton in 1903, set the land speed record of 68.18 mph, demonstrating the potential of automobiles for speed and performance.
+The Mercedes 35 hp, introduced in 1901, was one of the earliest examples of a high-performance sports car, winning races and setting records in Europe and the United States.
