@@ -1,1 +1,1 @@
-The Studebaker Champion, introduced in 1939 but produced throughout the 1940s, was a popular mid-priced car known for its reliability, fuel efficiency, and stylish design.
+The Studebaker Corporation, founded in 1852 as a wagon manufacturer, transitioned to automobile production in the early 1900s, producing a wide range of cars and trucks.
