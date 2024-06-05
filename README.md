@@ -1,1 +1,1 @@
-Civilian automobile production in the United States was largely suspended during World War II, as factories were repurposed for war production and resources were redirected to support the war effort.
+The Roaring Twenties saw the rise of automobile culture, with cars becoming symbols of freedom, independence, and social status for Americans.
