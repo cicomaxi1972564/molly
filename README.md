@@ -1,1 +1,1 @@
-The Roaring Twenties saw the rise of automobile culture, with cars becoming symbols of freedom, independence, and social status for Americans.
+The Auburn Automobile Company, founded in 1900, gained prominence in the 1920s with models like the Auburn 8-88, known for their stylish designs and powerful engines.
