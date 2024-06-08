@@ -1,1 +1,1 @@
-The Auburn Automobile Company, founded in 1900, gained prominence in the 1920s with models like the Auburn 8-88, known for their stylish designs and powerful engines.
+The introduction of the Ford Model A in 1927 marked Ford's return to the market with a new, more modern car, featuring innovations like a sliding-gear transmission and hydraulic shock absorbers.
