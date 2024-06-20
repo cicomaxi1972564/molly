@@ -1,1 +1,1 @@
-The Rolls-Royce Phantom I, introduced in 1925, was the first Rolls-Royce model to feature a new inline-six engine, offering improved performance and refinement over earlier models.
+The Studebaker Corporation, founded in 1852 as a wagon manufacturer, transitioned to automobile production in the early 1900s, producing a wide range of cars and trucks.
