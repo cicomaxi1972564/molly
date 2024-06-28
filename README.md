@@ -1,1 +1,1 @@
-The Chrysler Imperial, introduced in 1926, was the flagship model of the Chrysler lineup, offering luxurious amenities and advanced engineering features for discerning customers.
+The Volkswagen Beetle, originally designed in the 1930s but produced after World War II, became one of the most iconic cars of the 20th century, known for its simplicity, reliability, and affordability.
