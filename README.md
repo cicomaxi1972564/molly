@@ -1,1 +1,1 @@
-The Volkswagen Beetle, originally designed in the 1930s but produced after World War II, became one of the most iconic cars of the 20th century, known for its simplicity, reliability, and affordability.
+The Jeep, originally developed for military use by Willys-Overland and Ford, became an iconic vehicle of World War II and laid the foundation for the modern SUV.
