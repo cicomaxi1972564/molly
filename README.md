@@ -1,1 +1,1 @@
-The Plymouth Deluxe, introduced in 1946, was one of the first American cars to feature post-war styling, with rounded fenders, integrated headlights, and a sleek profile.
+The Volkswagen Beetle, originally designed in the 1930s but produced after World War II, became one of the most iconic cars of the 20th century, known for its simplicity, reliability, and affordability.
