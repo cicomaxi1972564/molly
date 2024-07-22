@@ -1,1 +1,1 @@
-The Stanley Steamer, introduced in 1897, was a popular steam-powered car in the early 1900s, known for its quiet operation and smooth ride quality.
+The introduction of the Ford Model A in 1927 marked Ford's return to the market with a new, more modern car, featuring innovations like a sliding-gear transmission and hydraulic shock absorbers.
