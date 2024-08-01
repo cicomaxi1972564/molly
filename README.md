@@ -1,1 +1,1 @@
-The LaSalle, introduced by Cadillac in 1927, was a mid-priced luxury car designed to bridge the gap between Cadillac and its more affordable companion brand, Buick.
+The Packard Twin Six, introduced in 1916 but produced throughout the 1920s, featured a V12 engine and was renowned for its smooth performance and luxurious appointments.
