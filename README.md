@@ -1,1 +1,1 @@
-The Packard Twin Six, introduced in 1916 but produced throughout the 1920s, featured a V12 engine and was renowned for its smooth performance and luxurious appointments.
+The Indianapolis Motor Speedway, built in 1909, became a renowned venue for automobile racing, hosting events like the Indianapolis 500, one of the oldest and most prestigious motorsport races.
